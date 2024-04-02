@@ -2,4 +2,4 @@
 
 ini repo pertama
 
-dibuat ole : saya
+dibuat ole : siapa ya
